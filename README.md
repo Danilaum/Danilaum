@@ -1,5 +1,5 @@
 Danilo Pereira </br>
-Aluno de SIS/2°Sem na SPTECH </br>
+Aluno de SIS/3°Sem na SPTECH </br>
 
 "Não tema o escuro, pois talvez nele você encontre tudo o que deseja "</br>
 
